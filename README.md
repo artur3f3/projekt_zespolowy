@@ -1,1 +1,1 @@
-# projekt_zespolowy
+# projekt_zespolowy cos nie tak ??
