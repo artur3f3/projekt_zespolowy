@@ -1,1 +1,1 @@
-# projekt_zespolowy cos nie tak ??
+# projekt_zespolowy nie wszystko w porządku 
